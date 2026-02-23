@@ -2,6 +2,6 @@
 github workshop
 
 ## About me
-I was born in July.
+I was born on July 17th.
 Panitnun Amatavarakool
 
